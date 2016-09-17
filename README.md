@@ -1,0 +1,2 @@
+# smith.science
+domain owned
